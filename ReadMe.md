@@ -1,5 +1,5 @@
 # 💫 About Me:
-Analista de suporte N1<br>Acadêmico de Análise e Desenvolvimento de Sistemas
+Analista de suporte N2<br>Acadêmico de Análise e Desenvolvimento de Sistemas
 
 
 ## 🌐 Socials:
